@@ -1,1 +1,1 @@
-0x0A. Prime Gamhe
+0x0A. Prime Game
